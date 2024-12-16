@@ -1,8 +1,7 @@
-- 👋 Hi, I’m @xtrdltknyr
-- 👀 I’m interested in ...yes
-- 🌱 I’m currently learning programming.
-- 💞️ I’m looking to collaborate on idk.
-- 📫 How to reach me: No. I'm unreachable.
+- 👋 Hi, I’m @xtrdltknyr extrudált kenyér
+- 👀 I’m interested in aA.
+- 🌱 I’m currently learning programming and programming yes programming it is so fun yay.
+- 📫 How to reach me: pigon or discrod if yuo can figure it out lolol
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I eated 28 self-ballasted 160W Tungsram HMLI mercury-vapor bulbs
 
